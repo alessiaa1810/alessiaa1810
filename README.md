@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alessiaa1810
+- 👀 I’m interested in GAMING
+- 🌱 I’m currently learning for ICT
+- 💞️ I’m looking to collaborate on gaming ,edits
+- 📫 How to reach me @ff.alessiaa on instagram 
